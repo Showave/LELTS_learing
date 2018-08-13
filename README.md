@@ -22,3 +22,6 @@ Right ,well there various things you can do  once you're crossed  the lake ,to m
 8. what else...
 9. I'm a vegetarian,except for fish, and the occasional steak.
 Aries(白羊座), Taurus(jinniuzuo), Gemini(shuangzi), Cancer(juxie), Leo(shizi), Virgo(chunv), Libra(tiancheng), Scorpio(tianxie), Sagittarious(sheshou), Capricorn(mojie), Aquarius(shuiping), Pisces(shuangyu)
+--------------------------------（8.13）
+1. You want to hear an interesting thing about ...?
+2. 
