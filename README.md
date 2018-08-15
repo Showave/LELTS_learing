@@ -24,4 +24,9 @@ Right ,well there various things you can do  once you're crossed  the lake ,to m
 Aries(白羊座), Taurus(jinniuzuo), Gemini(shuangzi), Cancer(juxie), Leo(shizi), Virgo(chunv), Libra(tiancheng), Scorpio(tianxie), Sagittarious(sheshou), Capricorn(mojie), Aquarius(shuiping), Pisces(shuangyu)
 --------------------------------（8.13）
 1. You want to hear an interesting thing about ...?
-2. 
+2. Do you really think you can satisfy your need for relationship with a genetically altered cat?
+3. Maybe, if it's a cute little cuddly cat.
+4. You are right, I didn't ask her out.
+5. I should march over there and ask her out.
+6. Ah, Well I'm sure things will pick up.
+7. No no, that's not was my point.
